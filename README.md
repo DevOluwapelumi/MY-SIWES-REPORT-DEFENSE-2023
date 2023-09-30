@@ -10,3 +10,21 @@ and valuable insights gained.
 
 Feel free to explore the report and associated documentation for a deeper understanding of the SIWES program.
 
+#SIWES
+#SoftwareEngineering
+#WebDevelopment
+#FullStack
+#Internship
+#SQICollege
+#IndustrialExperience
+#SoftwareDevelopment
+#WebDesign
+#Coding
+#Programming
+#TechEducation
+#ProjectReport
+#WorkExperience
+#ITIndustry
+#project
+#free
+#associate
